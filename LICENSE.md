@@ -1,4 +1,4 @@
-
+survive the apocalypse top Script is the best survive the apocalypse Script, featuring one-hit kill and teleport. Safe and powerful for all your
 
 
 
